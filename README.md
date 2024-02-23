@@ -4,4 +4,4 @@ You can get a custom quote from here to get what you want without wasting time a
 services provided here are as follows.
 Websites. NewsPaper, Online news. WebEdition of news Agencies. Facebook. Twitter. Instagram.
 Mail your queries at mail given below. And get relaxed.
-nwantinilang@gmail.com
+
